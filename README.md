@@ -1,2 +1,2 @@
 # The-App-for-Good
-The App for good has been traveling for many years on his own to become the greatest use to humanity
+The app for good has been traveling on his own for many years to become the greatest use to humanity.
